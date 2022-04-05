@@ -1,5 +1,5 @@
 hi im splittwo (or ilovemymom1458)
-you are is the is cool
+
 heres some stuff about me
 --->
 1. im an artist and i love to draw (i dont draw fetish stuff or anything like that
